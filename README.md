@@ -1,2 +1,2 @@
-# holographic-solutions
+# Lasersec technologies 
 Anti Counterfeit Printing company
